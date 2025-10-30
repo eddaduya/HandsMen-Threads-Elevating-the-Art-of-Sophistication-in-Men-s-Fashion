@@ -1,1 +1,3 @@
 # HandsMen-Threads-Elevating-the-Art-of-Sophistication-in-Men-s-Fashion
+
+Link to the video: https://asiapacificcollege-my.sharepoint.com/:v:/g/personal/eddaduya_student_apc_edu_ph/EYnD4tU4wbVArKazy285ruIBsPdd_kM3JUPiobV-zVNwbg?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJPbmVEcml2ZUZvckJ1c2luZXNzIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXciLCJyZWZlcnJhbFZpZXciOiJNeUZpbGVzTGlua0NvcHkifX0&e=o3hbGA
